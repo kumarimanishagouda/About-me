@@ -33,7 +33,7 @@ I believe learning is a continuous process — every project I share here is a s
 ## 🌍 Connect With Me  
 
 🔗 LinkedIn: [kumarimanishagouda](https://www.linkedin.com/in/kumari-manisha-gouda-1a2793311/)  
-📧 Email: kumarimanishagouda@email.com
+📧 Email: kumarimanishagouda@gmail.com
 
 ---
 
